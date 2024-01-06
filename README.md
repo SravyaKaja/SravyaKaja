@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SravyaKaja
-- 👀 I’m interested in New things
+- 👀 I’m interested in reading
 - 🌱 I’m currently trying to improve my coding skills
 - 📫 How to reach me - sravyakaja@gmail.com
 
